@@ -1,6 +1,6 @@
 ### Hi there 👋😄✨
  
- - I’m studying biotechnology engineering at the UPAEP university in Mexico. 🇲🇽🥼🦅 
+ - I’m studying biotechnology engineering at the UPAEP university in Mexico. 🥼🦅 
  - I am working on my thesis about the synthesis of kinetin.🧬
  - I’m interested in learning more about programming and computational tools. 🖥️🖱️ 
  - I like to play board games, especially chess.♟️
